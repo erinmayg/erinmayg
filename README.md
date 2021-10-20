@@ -6,4 +6,4 @@ You can contact me from the following links:
 - [LinkedIn](https://linkedin.com/in/erinmayg)
 - [E-mail](mailto:erinmayg@gmail.com)
 
-Or you can see my art in [here](https://instagram.com/slyth-erinnn).
+Or you can see my art [here](https://instagram.com/slyth-erinnn)!
